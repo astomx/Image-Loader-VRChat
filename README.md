@@ -1,1 +1,1 @@
-# Propagandas-VRChat
+Imagens veiculadas no VRChat
